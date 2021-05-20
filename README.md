@@ -1,2 +1,2 @@
-o co tu chodzi -GLOWA MI NAPIER...
-lalala przegladarka
+ZMIENIAM COS
+
