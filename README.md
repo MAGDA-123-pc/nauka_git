@@ -1,1 +1,1 @@
-FFRVFVV
+o co tu chodzi
